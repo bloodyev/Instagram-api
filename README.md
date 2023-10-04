@@ -1,2 +1,2 @@
 # Instagram api mobile
-## Telegram @tiktokpeppa - https://t.me/tiktokpeppa
+## Telegram @bloodyev - https://t.me/bloodyev

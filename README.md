@@ -1,2 +1,2 @@
 # Instagram api mobile
-## Telegram @bloodyev - https://t.me/bloodyev
+## Telegram @Neo_Galaxy - https://t.me/Neo_Galaxy
